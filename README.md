@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @JoUnnas
-- 👀 I’m interested in codin and Minecraft.
+- 👀 I’m interested in coding and Minecraft.
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on SAP.
 - 📫 How to reach me jounnasmc@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: I love speaking and politic.
